@@ -1,5 +1,8 @@
 ## Keep yourself Safe
 
 ### Kebab
-#### idk
 
+#### idk
+#### eat
+#### sleeep
+#### jeagermeister
